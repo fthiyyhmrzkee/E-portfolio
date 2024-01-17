@@ -1,1 +1,3 @@
-
+# Reflection 3
+## INDUSTRIAL TALK AND INDUSTRIAL VISIT- UTMDigital Visit and UTMDigital Talk 
+### To be honest, visiting UTM Digital was enjoyable as I had a chance to see the infrastructure in the building. While seeing the uniqueness of the building's infrastructure, I was also able to gain my knowledge as we had been mentioned about the technologies used in UTM Digital in order for them to conduct a meeting or do their work. In addition, attending the virtual talk opened my mind about the various ICT services and digital services used in UTM Digital. These activities gave a bunch of positive input for me and other students as it gave us a better understanding and relatable to our course material. Overall, I am incredibly grateful for the opportunity to participate in both industrial visit and talk. It provided me with much-needed information for my video reflection assignment. 
