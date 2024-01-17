@@ -1,1 +1,3 @@
-
+# Reflection 2
+## INDUSTRIAL TALK 1- Overview of ICT Jobs in Clarity Techworks Sdn. Bhd. 
+### The industrial talk opened my eyes to the potential career paths related to ICT industry. The talk inspired me and i found myself excited about the overview of diverse ICT jobs in Clarity Techworks. One of the jobs available that caught my attention was web developer, a job that aligns with developing web. I was particularly interested in the phrase that had mentioned by  Mr. Yee Soon Tuck which is "soft skills". These skills like problem-solving and critical thinking are essential for someone who wants to work passionately. Aside from that, this industrial talk was really beneficial to me and my groupmates in completing our assignment as we were provided with sufficient information. 
