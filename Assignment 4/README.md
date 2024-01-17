@@ -1,1 +1,3 @@
-
+# Reflection 4
+## INDUSTRIAL TALK 2- System Development @ Credence (TM Subsidiary) 
+### Attending System Development @ Credence talk by Ms Qistina Batrisya was incredibly beneficial. It provided me with a clearer understanding of system development and job overview in analytics industry offered in Credence. She also explained the history of Credence in her presentation. I left feeling motivated and confident about exploring potential career opportunities within the organization. Other than that, this company culture seems collaborative and focused on learning and growth, with opportunities for open communication with each other in every department. This aligns with my desire to have a teamwork environment when working later. My groupmates and I had no problem to do the report for the assignment given by the lecturer. We also discussed about what content to be included in the report before dividing the task. 
