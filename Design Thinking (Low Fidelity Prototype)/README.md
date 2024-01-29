@@ -1,1 +1,3 @@
-
+# Design Thinking
+## Reflection 6
+### Throughout the design thinking project, I learned so many things that can be implemented in my daily life. This project encourages me to enhance my communication and teamwork skills as this is a team project. After all, I realized that I need to employ five phases in Design Thinking in solving problem. Other than that, I really appreciate all the efforts from my teammates to complete this project. My teammates and I worked hard to come out with our ideas to make the best prototype. All in all, this project was also challenging for me, but it gave me a lot of positive input.    
